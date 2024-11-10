@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mruniverse777
+- 👋 Hi, I’m Pruthvi raj M
 - 👀 I’m interested in what my mood depends
 - 🌱 I’m currently learning bca
 - 💞️ I’m looking to collaborate with money
